@@ -1,3 +1,3 @@
 # CookieClickerClassicWithBurger
 
-https://dmk6420.github.io/CookieClickerClassicWithBurger/
+https://dmk1282r.github.io/CookieClickerClassicWithBurger/
